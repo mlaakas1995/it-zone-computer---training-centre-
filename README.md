@@ -1,1 +1,0 @@
-# it-zone-computer---training-centre-
